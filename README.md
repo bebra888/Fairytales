@@ -1,2 +1,0 @@
-# Fairytales
-Kolobok and other
